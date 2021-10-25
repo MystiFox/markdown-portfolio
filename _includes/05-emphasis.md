@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+I really dislike writing things like this but because I need to then... My attributes are: **thoughtful**, _honest_ and **hard working**. 
